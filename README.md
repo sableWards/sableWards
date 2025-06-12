@@ -1,5 +1,6 @@
 ![The names i go by, leona and sable, both are okay! you can alternate/use only one](https://i.imgur.com/zkmBtlZ.png)
 ![My three kins, from left to right, roxy lalonde from homestuck, leona from league of legends and samarie from fear and hunger](https://i.imgur.com/mSDvdW6.png)
+(PDDD IM 20 NOW BUT IM LAZY TO CHANGE IT)
 ![m a 19 year old girl who loves to chill on ponytown! || LESBOOO ⚢ I LOVE MY WIFE!!, Im usually kinda quiet unless im with my girlfriend or im high / drunk lmao, please be kind! im not a big fan of mean jokes unless we are friends. I have a lot of ponies! Currently trying to make more >:3](https://i.imgur.com/EW0CQPH.png)
 ![Fandoms i like and byi](https://i.imgur.com/WqBwndF.png)
 
